@@ -1,2 +1,0 @@
-# projeto-faculdade
-faci wyden.
